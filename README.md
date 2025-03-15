@@ -1,0 +1,8 @@
+- 👋 Hi, I’m Suriya
+- 😄 Pronouns: Mr 💁🏻
+- ⚡ I graduated from the Faculty of Science 🎓
+- 💻 majoring in Information Technology 🧑🏼‍💻 
+- 👀 I’m interested in Web Developer and AI 
+- ✨ I am between jobs 
+- 📞 Tel : TH(+66) 0907840257
+- 📧 Email : Wongaiyara.Suriya@gmail.com
